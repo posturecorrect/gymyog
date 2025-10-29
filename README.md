@@ -91,7 +91,7 @@
     <h2>Final Thoughts</h2>
     <p>A posture corrector is a simple, affordable, and effective tool to help you build healthier habits and relieve back discomfort. Combined with regular exercise, stretching, and ergonomic adjustments, it can significantly improve your posture and <a href="https://matters.town/a/m2sgwmswnqci?utm_source=share_copy&referral=hrconstellatio">quality</a> of life. Start small, stay consistent, and watch how a little change in your posture can make a big difference in your comfort and confidence.</p>
 
-    <a href="#" class="cta">Shop Posture Correctors Now</a>
+    <a href="(https://gymyog.co.uk/products/posture-corrector-uk-back-brace)" class="cta">Shop Posture Correctors Now</a>
   </div>
 
   <footer>
